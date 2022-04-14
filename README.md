@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @royaghavami
-- 💞️ I’m currently a ce student at Sharif University
+- 💞️ I’m currently a Ce student at Sharif University
 - 📫 How to reach me @royasara99@gmail.com
 
 <!---
